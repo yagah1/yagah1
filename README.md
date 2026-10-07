@@ -2,7 +2,7 @@
 **Department of Science and Mathematics, Diabene Senior High Technical School, Sekondi-Takoradi, Ghana**
 
 📧 batujonas.18@gmail.com | 📞 +233 55 682 4608 
-🔗 ORCID: [0009-0008-1676-6584](https://orcid.org/0009-0008-1676-6584) | 🌐 [yagah1.github.io/yagah1Mworks]
+🔗 ORCID: [0009-0008-1676-6584](https://orcid.org/0009-0008-1676-6584) | 🌐 [https://yagah1.github.io/yagah1Mworks]
 ---
 
 **Professional:** Full-time Teacher, Ghana Education Service (GES) - 12 years experience teaching Mathematics and Sciences. B.Ed Mathematics (Valley View University), DBE (Tamale College of Education), Certificate in AI.
